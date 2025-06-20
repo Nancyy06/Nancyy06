@@ -1,4 +1,4 @@
-🌟 ###Hi there, Welcome to my GitHub space! 
+🌟Hi there, Welcome to my GitHub space! 
 
 
 I’m excited to have you here to discover my path in data analytics! I’m an MBA Finance student stepping into the data realm, analyzing trends, crafting solutions, and telling stories through numbers (with a hint of enthusiasm 😊). Here’s what you can explore:
